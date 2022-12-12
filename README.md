@@ -1,1 +1,1 @@
-damn
+No code No pain
